@@ -1,3 +1,4 @@
+<p align=center><a href="https://hits.sh/github.com/daniedibles/"><img alt="Hits" src="https://hits.sh/github.com/daniedibles.svg?style=flat-square&label=THE%20COLLECTIVE&color=4f2100&labelColor=c28e67"/></a></p>
 <p align=center> <img src="https://files.catbox.moe/8l79n6.png" height="207.692307692"width= "1000" height="300"> </p>
 <p align=center> <img src="https://files.catbox.moe/1tp4un.gif"> </p>
 <img src="https://files.catbox.moe/zmghva.png" align="right" width="200" height="200">
@@ -13,12 +14,12 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=315sppu6sfxv3cnblmn6lp63zaom&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color_cover=false&bar_color=000000">
   </a>
 </p>
-<p align=center>    </p>
 <p align="center"> <img src="https://files.catbox.moe/u4559o.png""width= "1000" height="300"> </p>
-
+<p align=center>    </p>
 <p align=center> <img src="https://files.catbox.moe/bhrxad.gif"><img src="https://files.catbox.moe/17x7pp.gif"><img src="https://files.catbox.moe/9t2s1f.png"><img src="https://files.catbox.moe/gzcqhc.gif"><img src="https://files.catbox.moe/nlic8j.jpg"><img src="https://files.catbox.moe/olvzck.png"><img src="https://files.catbox.moe/42bh3f.gif"> </p>
 <p align=center> <img src="https://files.catbox.moe/75zulo.gif"><img src="https://files.catbox.moe/9831zl.gif"><img src="https://files.catbox.moe/dhspp2.gif"><img src="https://files.catbox.moe/v0yr85.gif"><img src="https://files.catbox.moe/28ljck.gif"><img src="https://files.catbox.moe/f3xcsb.gif"></p>
 <p align="center"> <img src="https://files.catbox.moe/0mzfmh.gif"></p>
+
 
 <!--
 **singlepalerose/singlepalerose** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
