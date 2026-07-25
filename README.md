@@ -3,10 +3,10 @@
 <p align=center> <img src="https://files.catbox.moe/1tp4un.gif"> </p>
 <img src="https://files.catbox.moe/zmghva.png" align="right" width="200" height="200">
 <p align=center>
-$${\color{#5e2303}. ⊹  ◡   wip}$$ </p>
-<p align=center>
-<img src="https://files.catbox.moe/zf8c9w.gif"width="20"height="20">  dani  .  :;    <img src="https://files.catbox.moe/782bai.gif"width="20"height="20">  # they  .   xe   .   anyprns  <img src="https://files.catbox.moe/z7t2k7.gif"width="20"height="20"> </p>
-<p align=center>   <img src="https://files.catbox.moe/b63k9a.png"width="20"height="20">   . non - binary   𝄢  i like musicals  . <img src="https://files.catbox.moe/3oy9mp.gif"width="20"height="20">  minor</p>
+$$\color{#5e2303}\textsf{Work in progress.}$$</p>
+<p align=center> 
+<img src="https://files.catbox.moe/zf8c9w.gif"width="20"height="20">  $$\color{#5e2303}\textsf{ dani  . :; }$$  <img src="https://files.catbox.moe/782bai.gif"width="20"height="20">  $$\color{#bfae86}\textsf{ they}$$  .   $$\color{#784a2a}\textsf{xe}$$   .   $$\color{#5e2303}\textsf{ anyprns}$$  <img src="https://files.catbox.moe/z7t2k7.gif"width="20"height="20"> </p>
+<p align=center>   <img src="https://files.catbox.moe/b63k9a.png"width="20"height="20">   .  $$\color{#bfae86}\textsf{ nonbinary}$$   𝄢   $$\color{#5e2303}\textsf{i like musicals}$$  . <img src="https://files.catbox.moe/3oy9mp.gif"width="20"height="20">  $$\color{#784a2a}\textsf{minor}$$</p>
 <p align=center> :; <img src="https://files.catbox.moe/vb50dj.webp" width="20" height="20">  . iwecuf + iwcare  .   sensitive   <img src="https://files.catbox.moe/rwexax.gif"width="20"height="20">  .   c+h encouraged</p>
 <p align=center>    </p>
 <p align="center">
