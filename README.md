@@ -3,7 +3,7 @@
 <p align=center> <img src="https://files.catbox.moe/1tp4un.gif"> </p>
 <img src="https://files.catbox.moe/zmghva.png" align="right" width="200" height="200">
 <p align=center>
- .     ⊹    ◡     wip. </p>
+$${\color{#5e2303}. ⊹  ◡   wip}$$ </p>
 <p align=center>
 <img src="https://files.catbox.moe/zf8c9w.gif"width="20"height="20">  dani  .  :;    <img src="https://files.catbox.moe/782bai.gif"width="20"height="20">  # they  .   xe   .   anyprns  <img src="https://files.catbox.moe/z7t2k7.gif"width="20"height="20"> </p>
 <p align=center>   <img src="https://files.catbox.moe/b63k9a.png"width="20"height="20">   . non - binary   𝄢  i like musicals  . <img src="https://files.catbox.moe/3oy9mp.gif"width="20"height="20">  minor</p>
