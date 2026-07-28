@@ -5,9 +5,9 @@
 <p align=center>
 $$\color{#5e2303}\textsf{Work in progress.}$$</p>
 <p align=center> 
-<img src="https://files.catbox.moe/zf8c9w.gif"width="20"height="20">  $$\color{#5e2303}\textsf{ dani  . :; }$$  <img src="https://files.catbox.moe/782bai.gif"width="20"height="20">  $$\color{#bfae86}\textsf{ they}$$  .   $$\color{#784a2a}\textsf{xe}$$   .   $$\color{#5e2303}\textsf{ anyprns}$$  <img src="https://files.catbox.moe/z7t2k7.gif"width="20"height="20"> </p>
+<img src="https://files.catbox.moe/zf8c9w.gif"width="20"height="20">  $$\color{#5e2303}\textsf{ dani  . :; }$$  <img src="https://files.catbox.moe/782bai.gif"width="20"height="20">  $$\color{#bfae86}\textsf{ they}$$  .   $$\color{#784a2a}\textsf{xe}$$   $$\color{#5e2303}\textsf{.}$$   $$\color{#5e2303}\textsf{ anyprns}$$  <img src="https://files.catbox.moe/z7t2k7.gif"width="20"height="20"> </p>
 <p align=center>   <img src="https://files.catbox.moe/b63k9a.png"width="20"height="20">   .  $$\color{#bfae86}\textsf{ nonbinary}$$   𝄢   $$\color{#5e2303}\textsf{i like musicals}$$  . <img src="https://files.catbox.moe/3oy9mp.gif"width="20"height="20">  $$\color{#784a2a}\textsf{minor}$$</p>
-<p align=center> :; <img src="https://files.catbox.moe/vb50dj.webp" width="20" height="20">  . iwecuf + iwcare  .   sensitive   <img src="https://files.catbox.moe/rwexax.gif"width="20"height="20">  .   c+h encouraged</p>
+<p align=center> :; <img src="https://files.catbox.moe/vb50dj.webp" width="20" height="20">  . $$\color{#5e2303}\textsf{iwecuf}$$ + $$\color{#bfae86}\textsf{ iwcare}$$  .  $$\color{#784a2a}\textsf{sensitive}$$  <img src="https://files.catbox.moe/rwexax.gif"width="20"height="20">  .   $$\color{#784a2a}\textsf{ c+h encouraged}$$</p>
 <p align=center>    </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -19,6 +19,7 @@ $$\color{#5e2303}\textsf{Work in progress.}$$</p>
 <p align=center> <img src="https://files.catbox.moe/bhrxad.gif"><img src="https://files.catbox.moe/17x7pp.gif"><img src="https://files.catbox.moe/9t2s1f.png"><img src="https://files.catbox.moe/gzcqhc.gif"><img src="https://files.catbox.moe/nlic8j.jpg"><img src="https://files.catbox.moe/olvzck.png"><img src="https://files.catbox.moe/42bh3f.gif"> </p>
 <p align=center> <img src="https://files.catbox.moe/75zulo.gif"><img src="https://files.catbox.moe/9831zl.gif"><img src="https://files.catbox.moe/dhspp2.gif"><img src="https://files.catbox.moe/v0yr85.gif"><img src="https://files.catbox.moe/28ljck.gif"><img src="https://files.catbox.moe/f3xcsb.gif"></p>
 <p align="center"> <img src="https://files.catbox.moe/0mzfmh.gif"></p>
+<p align="center"> <img src="https://files.catbox.moe/9esg40.jpg"> l<img src="lhttps://files.catbox.moe/tocjwj.jpg"> </p>
 
 
 <!--
