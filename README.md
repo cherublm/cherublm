@@ -18,8 +18,8 @@ $$\color{#5e2303}\textsf{Work in progress.}$$</p>
 <p align=center>    </p>
 <p align=center> <img src="https://files.catbox.moe/bhrxad.gif"><img src="https://files.catbox.moe/17x7pp.gif"><img src="https://files.catbox.moe/9t2s1f.png"><img src="https://files.catbox.moe/gzcqhc.gif"><img src="https://files.catbox.moe/nlic8j.jpg"><img src="https://files.catbox.moe/olvzck.png"><img src="https://files.catbox.moe/42bh3f.gif"> </p>
 <p align=center> <img src="https://files.catbox.moe/75zulo.gif"><img src="https://files.catbox.moe/9831zl.gif"><img src="https://files.catbox.moe/dhspp2.gif"><img src="https://files.catbox.moe/v0yr85.gif"><img src="https://files.catbox.moe/28ljck.gif"><img src="https://files.catbox.moe/f3xcsb.gif"></p>
-<p align="center"> <img src="https://files.catbox.moe/0mzfmh.gif"></p>
-<p align="center"> <img src="https://files.catbox.moe/9esg40.jpg"> l<img src="lhttps://files.catbox.moe/tocjwj.jpg"> </p>
+<p align="center"> <img src="https://file.garden/ama9XCwzPDRasddf/Unknown%20(22)%20(1).jpg"></p>
+<p align="center"><img src="https://file.garden/ama9XCwzPDRasddf/Unknown%20(20)%20(1).jpg"> l<img src="lhttps://files.catbox.moe/tocjwj.jpg"> </p>
 
 
 <!--
