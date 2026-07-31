@@ -1,3 +1,5 @@
+<p align="center"> <img src="https://file.garden/ama9XCwzPDRasddf/Unknown%20(20)%20(1).jpg">
+
 <p align="center"> Please do not talk about the situation any further as it stresses me out even more than I already am. My Atabook will be closed until the situation is resolved and people forgive me and forget about the drama. Please. Thank you.</p>
 <p align="center"> I'm trying my absolute best to get better, change, and more. I don't want to end up problematic, I don't want to end up in the wrong, I just wanted attention. Please. Stop reminding me. Stop reminding me that I've done so much wrong. Stop reminding me about what I'd done in the past. It's only overwheming me and stressing me out even more. Thank you.</p>
 <p align="center"> I need to remind you once more that I am a <strong>minor</strong> and can barely handle this much pressure all at once. I <em>hate</em> that everything is happening to me all at once. I <em>hate</em> that this is ruining me, ruining <em>everything</em> about myself that I wanted you to see. I'm so sorry that I hurt people. I'm so sorry that I ruined their lives. But I'm trying to change, trying to get better, so, please.. just.. Leave me alone. Give me peace for once in my life.</p>
@@ -25,7 +27,7 @@ $$\color{#5e2303}\textsf{Work in progress.}$$</p>
 </p>
 <p align="center"> <img src="https://files.catbox.moe/u4559o.png""width= "1000" height="300"> </p>
 <p align=center>    </p>
-<p align="center"> <img src="https://file.garden/ama9XCwzPDRasddf/Unknown%20(22)%20(1).jpg"><img src="https://file.garden/ama9XCwzPDRasddf/Unknown%20(20)%20(1).jpg"> 
+<p align="center"> <img src="https://file.garden/ama9XCwzPDRasddf/Unknown%20(22)%20(1).jpg"></p> 
 <p align=center> <img src="https://files.catbox.moe/bhrxad.gif"><img src="https://files.catbox.moe/17x7pp.gif"><img src="https://files.catbox.moe/9t2s1f.png"><img src="https://files.catbox.moe/gzcqhc.gif"><img src="https://files.catbox.moe/nlic8j.jpg"><img src="https://files.catbox.moe/olvzck.png"><img src="https://files.catbox.moe/42bh3f.gif"> </p>
 <p align=center> <img src="https://files.catbox.moe/75zulo.gif"><img src="https://files.catbox.moe/9831zl.gif"><img src="https://files.catbox.moe/dhspp2.gif"><img src="https://files.catbox.moe/v0yr85.gif"><img src="https://files.catbox.moe/28ljck.gif"><img src="https://files.catbox.moe/f3xcsb.gif"></p>
 <p align="center"> <img src="lhttps://files.catbox.moe/tocjwj.jpg"> </p>
