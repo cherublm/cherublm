@@ -1,6 +1,6 @@
-<p> Please do not talk about the situation any further as it stresses me out even further than I already am. My Atabook will be closed until the situation is resolved and people forgive me and forget about the drama. Please. Thank you.</p>
-<p> I'm trying my absolute best to get better, change, and more. I don't want to end up problematic, I don't want to end up in the wrong, I just wanted attention. Please. Stop reminding me. Stop reminding me that I've done so much wrong. Stop reminding me about what I'd done in the past. It's only overwheming me and stressing me out even more. Thank you.</p>
-<p> -Lawrence </p>
+<p align="center"> Please do not talk about the situation any further as it stresses me out even further than I already am. My Atabook will be closed until the situation is resolved and people forgive me and forget about the drama. Please. Thank you.</p>
+<p align="center"> I'm trying my absolute best to get better, change, and more. I don't want to end up problematic, I don't want to end up in the wrong, I just wanted attention. Please. Stop reminding me. Stop reminding me that I've done so much wrong. Stop reminding me about what I'd done in the past. It's only overwheming me and stressing me out even more. Thank you.</p>
+<p align="center">  -Lawrence </p>
 
 <p align=center><a href="https://hits.sh/github.com/heavenincorporated/"><img alt="Hits" src="https://hits.sh/github.com/heavenincorporated.svg?style=flat-square&label=THE%20COLLECTIVE&color=4f2100&labelColor=c28e67"/></a></p>
 <p align=center> <img src="https://files.catbox.moe/8l79n6.png" height="207.692307692"width= "1000" height="300"> </p>
