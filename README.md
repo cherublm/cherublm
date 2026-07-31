@@ -5,6 +5,8 @@
 <p align="center"> I've had enough. Please stop. </p>
 <p align="center">  -Lawrence </p>
 
+https://docs.google.com/document/d/14_1uDBFvkfGdgb1kv7eQiwBF4L0VZt1405I3ISFQ7DQ/edit?usp=drivesdk
+
 <p align=center><a href="https://hits.sh/github.com/heavenincorporated/"><img alt="Hits" src="https://hits.sh/github.com/heavenincorporated.svg?style=flat-square&label=THE%20COLLECTIVE&color=4f2100&labelColor=c28e67"/></a></p>
 <p align=center> <img src="https://files.catbox.moe/8l79n6.png" height="207.692307692"width= "1000" height="300"> </p>
 <p align=center> <img src="https://files.catbox.moe/1tp4un.gif"> </p>
