@@ -1,6 +1,6 @@
 
 $$\color{#fcba03}\textsf{"Heather,} \space \color{#009425}\textsf{Heather,} \space \color{#d60909}\textsf{Heather,} \space \color{#0935d6}\textsf{and someone?"}$$
-<img src="https://file.garden/ama9XCwzPDRasddf/IMG_6628.gif" align="center">
+<img src="https://files.catbox.moe/afs84r.gif" align="center">
 $$\color{#c4c8cf}\textsf{Retheming}$$
 
 <p align=center>
