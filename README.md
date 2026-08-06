@@ -1,7 +1,20 @@
 
-$$\color{#fcba03}\textsf{"Heather,} \space \color{#009425}\textsf{Heather,} \space \color{#d60909}\textsf{Heather,} \space \color{#0935d6}\textsf{and someone?"}$$
+<img align="left" src="https://cdn.discordapp.com/attachments/1360075575976525864/1534913490412765254/Untitled399_20260806081800.png?ex=6a75db15&is=6a748995&hm=d5e8f18f3d3ace00f5376db6020cea5933ba950584ac2b91042e1a9f8cb9c208&" width="79" height="276.666666667">
+<img align="right" src="https://cdn.discordapp.com/attachments/1360075575976525864/1534913490412765254/Untitled399_20260806081800.png?ex=6a75db15&is=6a748995&hm=d5e8f18f3d3ace00f5376db6020cea5933ba950584ac2b91042e1a9f8cb9c208&" width="79" height="276.666666667">
 
-$$\color{#c4c8cf}\textsf{Retheming}$$
+$$\color{#fcba03}\textsf{"Heather,} \space \color{#009425}\textsf{Heather,} \space \color{#d60909}\textsf{Heather,} \space \color{#0935d6}\textsf{and someone?"}$$
+<p align="center"><img src="https://cdn.discordapp.com/attachments/1360075575976525864/1534911210317811822/IMG_6628.gif?ex=6a75d8f5&is=6a748775&hm=916a1104c2c84ee01eaa077c35723ca3a3b78dded57e6b7bd21dc5249c94e592&"></p>
+
+$$\color{d60909}\textsf{Honey, what 'ya waitin' for? Welcome to my candy store!}$$
+$$\color{d60909}\textsf{Time for you to prove you're not a loser anymore!}$$
+<p align="center"> <img src="https://cdn.discordapp.com/attachments/1360075575976525864/1534916688833810502/Untitled397_20260806083032.png?ex=6a75de0f&is=6a748c8f&hm=8ec6efc921b01d9270ee09ca99f3f5dd4c349e39d943df4d4b870793a9c2b5f7&" width="294" height="165"> </p>
+<img align="left" src="https://cdn.discordapp.com/attachments/1360075575976525864/1534914270062444624/Untitled399_20260806081756.png?ex=6a75dbcf&is=6a748a4f&hm=579a004bc7812f613708ad614c735e24493f731083d95d6185df455eb992e3c4&" width="79" height="276.666666667">
+<img align="right" src="https://cdn.discordapp.com/attachments/1360075575976525864/1534914270062444624/Untitled399_20260806081756.png?ex=6a75dbcf&is=6a748a4f&hm=579a004bc7812f613708ad614c735e24493f731083d95d6185df455eb992e3c4&" width="79" height="276.666666667">
+
+$$\color{d60909}\textsf{etoile　　✦︎　　they/xem}$$
+$$\color{#fcba03}\textsf{　　non - binary　　✦︎　　heathers fan}$$
+$$\color{009425}\textsf{artist　　✦︎　　writer}$$
+$$\color{0935d6}\textsf{c+h 　　-　　freely}$$
 
 <p align=center>
   <a href="https://github.com/kittinan/spotify-github-profile">
