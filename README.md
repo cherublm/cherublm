@@ -14,7 +14,7 @@ $$\color{d60909}\textsf{Time for you to prove you're not a loser anymore!}$$
 $$\color{d60909}\textsf{etoile　　✦︎　　they/xem}$$
 $$\color{#fcba03}\textsf{　　non - binary　　✦︎　　heathers fan}$$
 $$\color{009425}\textsf{artist　　✦︎　　writer}$$
-$$\color{0935d6}\textsf{c+h 　　-　　freely}$$
+$$\color{0935d6}\textsf{c+h 　　+ int　　freely}$$
 
 <p align=center>
   <a href="https://github.com/kittinan/spotify-github-profile">
