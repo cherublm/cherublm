@@ -22,7 +22,7 @@ $$\color{0935d6}\textsf{c+h　　✦︎　　int　　freely (please)}$$
   </a>
 </p>
 
-$$\color{0935d6}\textsf{I am NOT addressing the allegations... ,sil}$$
+
 <p align="center">
 <a href="https://hits.sh/github.com/daniedibles/"><img alt="Hits" src="https://hits.sh/github.com/daniedibles.svg?style=for-the-badge&label=students%20of%20westerberg&color=cc1111&labelColor=ffffff"/></a>
 </p>
