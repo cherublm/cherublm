@@ -3,7 +3,7 @@
 <img align="right" src="https://files.catbox.moe/ysca2i.png" width="79" height="276.666666667">
 
 $$\color{#fcba03}\textsf{"Heather,} \space \color{#009425}\textsf{Heather,} \space \color{#d60909}\textsf{Heather,} \space \color{#0935d6}\textsf{and someone?"}$$
-<p align="center"><img src="https://imgur.com/gallery/j-2icazvw#fyIFrz3"></p>
+<p align="center"><img src="https://files.catbox.moe/afs84r.gif"></p>
 
 $$\color{d60909}\textsf{Honey, what 'ya waitin' for? Welcome to my candy store!}$$
 $$\color{d60909}\textsf{Time for you to prove you're not a loser anymore!}$$
